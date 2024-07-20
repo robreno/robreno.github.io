@@ -22,4 +22,4 @@ We reserve the right to update or change our Privacy Policy at any time and you 
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send me an email to robreno@hotmail.com.
+For any questions or concerns regarding the privacy policy, please send me an email to ubviewsinfo@gmail.com.
